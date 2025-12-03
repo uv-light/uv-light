@@ -10,7 +10,7 @@
 
 
 <p align="center">
-<img src="https://i.postimg.cc/mr7sSZsg/shelenmylove.webp&=&format=webp&quality=lossless&width=1752&height=1238"/>
+<img src="https://i.postimg.cc/jd1y66Q4/Screenshot-20251202-234147-Gallery.webp"/>
 <p align="center">
 i love wif
   <p align="center">
