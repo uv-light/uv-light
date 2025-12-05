@@ -15,4 +15,6 @@
 i love wif
   <p align="center">
 ( suki is NOT helen chat ;-; )
-
+  <p align="center">
+    BRO STOPOPOOPPO TS SORA AI 
+<img src="https://i.postimg.cc/VLLTvxBR/Screenshot-2025-12-04-at-9-37-35-PM.png"/>
