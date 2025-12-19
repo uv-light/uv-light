@@ -20,5 +20,5 @@ i love wif
   <p align="center">
 ( suki is NOT helen chat ;-; )
   <p align="center">
-    BRO STOPOPOOPPO TS SORA AI 
-<img src="https://i.postimg.cc/VLLTvxBR/Screenshot-2025-12-04-at-9-37-35-PM.png"/>
+    bro its ai clearly ;_:
+<img src="https://i.postimg.cc/G2WC8Jp2/2025-12-18-0yo-Kleki.png"/>
