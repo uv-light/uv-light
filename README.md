@@ -1,6 +1,6 @@
 <p align="center"
 
-yall must fucking HATE when im lute bc u all just cuddle bang me when im emily ;_:
+yall must fucking HATE when im lute bc u all just cuddle bang me when im emily ;_;
 
 <p align="center"
 
