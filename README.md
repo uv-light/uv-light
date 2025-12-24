@@ -1,5 +1,9 @@
 <p align="center"
 
+yall must fucking HATE when im lute bc u all just cuddle bang me when im emily ;_:
+
+<p align="center"
+
 ![](https://komarev.com/ghpvc/?username=silentsaltcookie&color=8c5de8&label=fans+;-;)  ⠀ 🂡 ⠀ <img alt="GitHub followers" src="https://img.shields.io/github/followers/uv-light?style=flat&label=oomfies&labelColor=grey&color=7F55D2">
 
 
