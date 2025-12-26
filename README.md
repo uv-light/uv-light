@@ -1,6 +1,6 @@
 <p align="center"
 
-yall must fucking HATE when im lute bc u all just cuddle bang me when im emily ;_;
+WHY FOLOWN THEN UNFOLLOW I CANT EVEN SAY 2 FOLLOWERS LOST ME BC I JUST FOLLOW 2 FOLLOWUHHHH DIEDIEIDIEDIEDIEDIEDIEIDIEDIEDIEDIEIDI
 
 <p align="center"
 
