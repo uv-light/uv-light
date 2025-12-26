@@ -1,7 +1,6 @@
 <p align="center"
 
-WHY FOLOWN THEN UNFOLLOW I CANT EVEN SAY 2 FOLLOWERS LOST ME BC I JUST FOLLOW 2 FOLLOWUHHHH DIEDIEIDIEDIEDIEDIEDIEIDIEDIEDIEDIEIDI
-
+sorry dont die guys i love all 313 of you hahaha
 <p align="center"
 
 ![](https://komarev.com/ghpvc/?username=silentsaltcookie&color=8c5de8&label=fans+;-;)  ⠀ 🂡 ⠀ <img alt="GitHub followers" src="https://img.shields.io/github/followers/uv-light?style=flat&label=oomfies&labelColor=grey&color=7F55D2">
