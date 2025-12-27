@@ -22,5 +22,5 @@ i love wif
   <p align="center">
 ( suki is NOT helen chat ;-; )
   <p align="center">
-    bro its ai clearly ;_:
-<img src="https://i.postimg.cc/G2WC8Jp2/2025-12-18-0yo-Kleki.png"/>
+   oh my fucking GOD # canceled -_-
+<img src="https://i.postimg.cc/SsQ7pBsW/Screenshot-2025-12-26-at-9-53-52-PM.png"/>
