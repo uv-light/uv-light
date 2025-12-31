@@ -1,5 +1,6 @@
 <p align="center"
-
+  
+ponytown is being FAT an d now i actually get kicked evry 15 mins even if im active so beware if c + h until they unban my thingy..
 <p align="center"
 
 ![](https://komarev.com/ghpvc/?username=silentsaltcookie&color=8c5de8&label=fans+;-;)  ⠀ 🂡 ⠀ <img alt="GitHub followers" src="https://img.shields.io/github/followers/uv-light?style=flat&label=oomfies&labelColor=grey&color=7F55D2">
