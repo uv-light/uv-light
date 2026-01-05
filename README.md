@@ -17,7 +17,7 @@ pt kicks evry 15 , disconnect alot . who gaf ;_;
 
 
 <p align="center">
-<img src="https://i.postimg.cc/jd1y66Q4/Screenshot-20251202-234147-Gallery.webp"/>
+<img src="https://i.postimg.cc/rFvvv8KG/Untitled160.webp"/>
 <p align="center">
 i love wif
   <p align="center">
