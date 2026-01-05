@@ -1,6 +1,12 @@
 <p align="center"
   
 pt kicks evry 15 , disconnect alot . who gaf ;_;
+<p align="center">
+<img src="https://i.postimg.cc/g28Mw1nd/Screenshot-2026-01-05-at-8-41-09-AM.png"/>
+<p align="center">
+<p align="center"
+
+  WHO SAID THAT
 <p align="center"
 
 ![](https://komarev.com/ghpvc/?username=silentsaltcookie&color=8c5de8&label=fans+;-;)  ⠀ 🂡 ⠀ <img alt="GitHub followers" src="https://img.shields.io/github/followers/uv-light?style=flat&label=oomfies&labelColor=grey&color=7F55D2">
