@@ -1,29 +1,40 @@
-<p align="center"
+<p align="center">
+  $$\color{#29005e}{\text{ꕀ}}$$   ✶   $$\color{#29005e}{\text{ꕀ}}$$ ⠀⠀ 
+  </p>
+<img
+  src="https://i.postimg.cc/KYNPQvDz/Untitled188-20260106020400.webp"
+  width="500"
+  align="right"
+/>
+<br><br><br>
+<p align="center"> 
   
-pt kicks evry 15 , disconnect alot . who gaf ;_;
+$$\color{#8d5cb5}{\text{- ‎  🂡 ‎  -}}$$
+  
+$$\color{#6e3fa1}{\text{SHAD‎ ‎ /‎ ‎ INDI (‎ GO‎ )}}$$
+
+$$\quad$$
+
+$$\color{#532487}{\text{cud‎ ‎ comf‎‎ ‎ ,‎‎ ‎ int‎‎ ‎ freely‎ ‎ whisp‎‎ ‎ prefered}}$$
+
+$$\quad$$
+
+$$\color{#3e1c8c}{\text{iwc‎ ‎ /‎ ‎ iwec‎ ‎ alot‎ ( ‎ episodes ‎ often ‎ ) ‎ BPD‎ ‎ +‎ ‎ SCHIZO‎ ‎ ,‎ ‎ diagnosed‎ ‎. }}$$
+
+$$\color{#2d0f73}{\text{- ‎  🂭 ‎  -}}$$
+
 <p align="center">
-<img src="https://i.postimg.cc/g28Mw1nd/Screenshot-2026-01-05-at-8-41-09-AM.png"/>
+  <a href="https://indihoe.straw.page/">STRAW</a> ‎ ‎; ‎ ‎ <a href="https://x.com/pinkiedashing">TWT</a> ‎ ‎; ‎ ‎ <a href="https://guns.lol/emilute">GUNS</a>  ‎ ‎; ‎ ‎<a href="https://rentry.co/shadoe">RENTRY</a>
+</p>
+
+<br clear="left">
+
+
 <p align="center">
-<p align="center"
-
-  WHO SAID THAT
-<p align="center"
-
-![](https://komarev.com/ghpvc/?username=silentsaltcookie&color=8c5de8&label=fans+;-;)  ⠀ 🂡 ⠀ <img alt="GitHub followers" src="https://img.shields.io/github/followers/uv-light?style=flat&label=oomfies&labelColor=grey&color=7F55D2">
-
-
-<p align="center"
   <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=31mqea4bkl2xh4sm6chwi3ubqs4m&redirect=true">
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31mqea4bkl2xh4sm6chwi3ubqs4m&cover_image=true&theme=natemoo-re&show_offline=true&background_color=0a003d&interchange=false&profanity=false&bar_color=7f55d2&bar_color_cover=false">
   </a>
-</p>
 
-<p align="center">
-<img src="https://i.postimg.cc/rFvvv8KG/Untitled160.webp"/>
-<p align="center">
-i love wif
-  <p align="center">
-( suki is NOT helen chat ;-; )
-  <p align="center">
-   oh my fucking GOD # canceled -_-
-<img src="https://i.postimg.cc/SsQ7pBsW/Screenshot-2025-12-26-at-9-53-52-PM.png"/>
+  <p align="center"
+  
+![](https://komarev.com/ghpvc/?username=silentsaltcookie&color=29005e&label=fans+;-;)  ⠀⠀ ✶⠀ ⠀ <img alt="GitHub followers" src="https://img.shields.io/github/followers/uv-light?style=flat&label=oomfies&labelColor=grey&color=29005e">
