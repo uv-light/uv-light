@@ -7,7 +7,7 @@
   </p>
 <img
   src="https://i.postimg.cc/KYNPQvDz/Untitled188-20260106020400.webp"
-  width="500"
+  width="450"
   align="right"
 
 <br><br><br>
