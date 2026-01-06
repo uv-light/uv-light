@@ -1,12 +1,17 @@
 <p align="center">
-  $$\color{#29005e}{\text{ꕀ}}$$   ✶   $$\color{#29005e}{\text{ꕀ}}$$ ⠀⠀ 
+  $$\color{#29005e}{\text{ꕀ}}$$   ✶   $$\color{#29005e}{\text{ꕀ}}$$ 
+  <p align="center">
+    ⠀⠀ 
+ 
+    
   </p>
 <img
   src="https://i.postimg.cc/KYNPQvDz/Untitled188-20260106020400.webp"
   width="500"
   align="right"
-/>
+
 <br><br><br>
+
 <p align="center"> 
   
 $$\color{#8d5cb5}{\text{- ‎  🂡 ‎  -}}$$
@@ -37,4 +42,4 @@ $$\color{#2d0f73}{\text{- ‎  🂭 ‎  -}}$$
 
   <p align="center"
   
-![](https://komarev.com/ghpvc/?username=silentsaltcookie&color=29005e&label=fans+;-;)  ⠀⠀ ✶⠀ ⠀ <img alt="GitHub followers" src="https://img.shields.io/github/followers/uv-light?style=flat&label=oomfies&labelColor=grey&color=29005e">
+![](https://komarev.com/ghpvc/?username=silentsaltcookie&color=29005e&label=fans+;-;) <img alt="GitHub followers" src="https://img.shields.io/github/followers/uv-light?style=flat&label=ppl&labelColor=grey&color=29005e">
