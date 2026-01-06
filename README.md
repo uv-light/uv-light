@@ -24,7 +24,7 @@ $$\color{#532487}{\text{cud‎ ‎ comf‎‎ ‎ ,‎‎ ‎ int‎‎ ‎ free
 
 $$\quad$$
 
-$$\color{#3e1c8c}{\text{iwc‎ ‎ /‎ ‎ iwec‎ ‎ alot‎ ( ‎ episodes ‎ often ‎ ) ‎ BPD‎ ‎ +‎ ‎ SCHIZO‎ ‎ ‎ diagnosed‎ ‎. }}$$
+$$\color{#3e1c8c}{\text{iwc‎ ‎‎/‎ iwec‎ ‎ alot‎ (‎ episodes ‎ often ‎) ‎ BPD‎ ‎ +‎ ‎ SCHIZO‎ ‎,‎ diagnosed‎ ‎. }}$$
 
 $$\color{#2d0f73}{\text{- ‎  🂭 ‎  -}}$$
 
