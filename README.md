@@ -1,5 +1,5 @@
 <p align="center">
-  $$\color{#29005e}{\text{ꕀ}}$$   ✶   $$\color{#29005e}{\text{ꕀ}}$$ 
+  $$\color{#29005e}{\text{ꕀ}}$$   $$\color{#796b80}{\text{✶}}$$   $$\color{#29005e}{\text{ꕀ}}$$ 
   <p align="center">
     ⠀⠀ 
  
