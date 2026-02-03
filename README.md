@@ -29,7 +29,7 @@ $$\color{#3e1c8c}{\text{iwc‎ ‎‎/‎ iwec‎ ‎ alot‎ (‎ episodes ‎ 
 $$\color{#2d0f73}{\text{- ‎  🂭 ‎  -}}$$
 
 <p align="center">
-  <a href="https://indihoe.straw.page/">STRAW</a> ‎ ‎; ‎ ‎ <a href="https://x.com/pinkiedashing">TWT</a> ‎ ‎; ‎ ‎ <a href="https://guns.lol/emilute">GUNS</a>  ‎ ‎; ‎ ‎<a href="https://rentry.co/shadoe">RENTRY</a> ‎ ‎; ‎ ‎‎<a href="https://indi.atabook.org/">ATA</a> 
+  <a href="https://humanspider.straw.page/">STRAW</a> ‎ ‎; ‎ ‎ <a href="https://x.com/pinkiedashing">TWT</a> ‎ ‎; ‎ ‎ <a href="https://guns.lol/emilute">GUNS</a>  ‎ ‎; ‎ ‎<a href="https://rentry.co/shadoe">RENTRY</a> ‎ ‎; ‎ ‎‎<a href="https://indi.atabook.org/">ATA</a> 
 </p>
 
 <br clear="left">
