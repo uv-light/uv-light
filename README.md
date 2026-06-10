@@ -6,7 +6,7 @@
     
   </p>
 <img
-  src="https://i.postimg.cc/KYNPQvDz/Untitled188-20260106020400.webp"
+  src="https://i.postimg.cc/7hy9Qs3m/Untitled61-20260610011036.png"
   width="450"
   align="right"
 
@@ -14,19 +14,19 @@
 
 <p align="center"> 
   
-$$\color{#8d5cb5}{\text{- ‎  🂡 ‎  -}}$$
+$$\color{#620071}{\text{- ‎  🂡 ‎  -}}$$
   
-$$\color{#6e3fa1}{\text{SHAD‎ ‎ /‎ ‎ INDI (‎ GO‎ )}}$$
+$$\color{#620071}{\text{SHAD‎ ‎ or ‎ INDI (‎ GO‎ )}}$$
 
 $$\quad$$
 
-$$\color{#532487}{\text{cud‎ ‎ comf‎‎ ‎ ,‎‎ ‎ int‎‎ ‎ freely‎ ‎ whisp‎‎ ‎ prefered}}$$
+$$\color{#570071}{\text{cud‎ ‎ comf‎‎ ‎ ,‎‎ ‎ int‎‎ ‎ freely‎ ‎ whisp‎‎ ‎ prefered}}$$
 
 $$\quad$$
 
-$$\color{#3e1c8c}{\text{iwc‎ ‎‎/‎ iwec‎ ‎ alot‎ (‎ episodes ‎ often ‎) ‎ BPD‎ ‎ +‎ ‎ SCHIZO‎ ‎,‎ diagnosed‎ ‎. }}$$
+$$\color{#570071}{\text{iwc‎ ‎‎/‎ iwec‎ ‎ alot‎ (‎ episodes ‎ often ‎) ‎ BPD‎ ‎ +‎ ‎ SCHIZO‎ ‎,‎ diagnosed‎ ‎. }}$$
 
-$$\color{#2d0f73}{\text{- ‎  🂭 ‎  -}}$$
+$$\color{#3F0064}{\text{- ‎  🂭 ‎  -}}$$
 
 <p align="center">
   <a href="https://lndigo.straw.page/">STRAW</a> ‎ ‎; ‎ ‎ <a href="https://x.com/pinkiedashing">TWT</a> ‎ ‎; ‎ ‎ <a href="https://guns.lol/emilute">GUNS</a>  ‎ ‎; ‎ ‎<a href="https://rentry.co/shadoe">RENTRY</a> ‎ ‎; ‎ ‎‎<a href="https://indi.atabook.org/">ATA</a> 
