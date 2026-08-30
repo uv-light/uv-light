@@ -5,7 +5,7 @@
 
   <p align="center"
   
-![](https://komarev.com/ghpvc/?username=silentsaltcookie&color=5505a1&label=fans+;-;) <img alt="GitHub followers" src="https://img.shields.io/github/followers/uv-light?style=flat&label=follows&labelColor=grey&color=450085">
+![](https://komarev.com/ghpvc/?username=silentsaltcookie&color=5505a1&label=fans+;-;) <img alt="GitHub followers" src="https://img.shields.io/github/followers/uv-light?style=flat&label=cuckmates&labelColor=grey&color=450085">
 
 
 
