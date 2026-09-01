@@ -1,7 +1,9 @@
 <p align="center">
+  <p align="center">
   <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=31mqea4bkl2xh4sm6chwi3ubqs4m&redirect=true">
-    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31mqea4bkl2xh4sm6chwi3ubqs4m&cover_image=true&theme=natemoo-re&show_offline=true&background_color=0a003d&interchange=false&profanity=false&bar_color=001f69&bar_color_cover=false">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31mqea4bkl2xh4sm6chwi3ubqs4m&cover_image=true&theme=natemoo-re&show_offline=true&background_color=03040c&interchange=true&profanity=false&hide_remaster=false&bar_color=6912d3&bar_color_cover=false">
   </a>
+</p>
 
   <p align="center"
   
