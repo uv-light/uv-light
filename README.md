@@ -1,4 +1,8 @@
 <p align="center">
+TO THE LUTES IN THE HAZBIN AREA DONT COPT ME U LAZY CUCKAZOIDS YOU TAKING MY DESIGN CUCKS ME SOO HARDDDDD DIEEEEE I WILL NEEVRR CUDDLE WITH YOU AGAINNNN
+<p align="center">
+
+<p align="center">
   https://lndigo.straw.page
 </p>
 <p align="center">
