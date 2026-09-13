@@ -1,5 +1,5 @@
 <p align="center">
-TO THE LUTES IN THE HAZBIN AREA DONT COPT ME U LAZY CUCKAZOIDS YOU TAKING MY DESIGN CUCKS ME SOO HARDDDDD DIEEEEE I WILL NEEVRR CUDDLE WITH YOU AGAINNNN
+wipppp sign mi ata https://indi.atabook.org/?page=1
 <p align="center">
 
 <p align="center">
@@ -15,7 +15,7 @@ TO THE LUTES IN THE HAZBIN AREA DONT COPT ME U LAZY CUCKAZOIDS YOU TAKING MY DES
 
   <p align="center"
   
-![](https://komarev.com/ghpvc/?username=silentsaltcookie&color=5505a1&label=fans+;-;) <img alt="GitHub followers" src="https://img.shields.io/github/followers/uv-light?style=flat&label=cuckmates&labelColor=grey&color=450085">
+![](https://komarev.com/ghpvc/?username=silentsaltcookie&color=5505a1&label=fans+(·•᷄‎ࡇ•᷅) ) <img alt="GitHub followers" src="https://img.shields.io/github/followers/uv-light?style=flat&label=cuckmates&labelColor=grey&color=450085">
 
 
 
