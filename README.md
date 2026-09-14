@@ -3,7 +3,7 @@ wipppp sign mi <a href="https://indi.atabook.org/?page=1">ata</a>
 <p align="center">
 
 <p align="center">
-  https://lndigo.straw.page
+  <a href=https://lndigo.straw.page>straw</a> , <a href=https://rentry.co/shadoe>rentry</a>
 </p>
 <p align="center">
   shinkyoots
